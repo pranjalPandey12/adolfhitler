@@ -1,5 +1,5 @@
 # adolfhitler
-Pranjal 
-Pandey
+Prakhar Pandey
+And Prakhyat Tripathi
 Adolf 
 #adolfhitler1234
